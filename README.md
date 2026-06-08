@@ -1,4 +1,9 @@
-## Hi there 👋
+Currently not very active on pt. Hello! I'm Nesu. I'm a multifandom and multishipper guy who enjoys sitting around characters I love or friends.
+Main interests: Identity V, Fire Emblem, The summer Hikaru died, possibly Honkai Star Rail. Carrd has all my fandoms.
+
+Main ships (i love talking about these ships): Hernmatt, Florimatt, Vicluc, Vicsop, Vicdrew, Adaemil, Dimileth, Sylvgrid, Elininian, Ephlyon, Sigeirdre, Sigdigan, Alfrear, Fogasado, Fogacryst, Grisslear, Yoshikaru, Jingren, Caeheng, Aventio, Zhongchi, Illuhen, Thomato, Masawonder, Josecae, ... And much more tbh I ship so many things I love.
+
+Current favorite characters: Hernando Romero, Florian Brand, Jing Yuan, Pure Vanilla Cookie, "Hikaru", Sylvain, Dimitri (FE), Yusuke Kitagawa, Masaki Ashiya, Caesar A. Zeppeli, Noriaki Kakyoin, Jean Pierre Polnareff
 
 <!--
 **SunflowerOfHope/SunflowerOfHope** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
